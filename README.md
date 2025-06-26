@@ -1,1 +1,1 @@
-#### Problem Statement: https://docs.google.com/document/d/1rdykcfh-PZ0hFrnXYgGFDkZlMkvMCe-a/edit?tab=t.0
+#### Problem Statement: https://docs.google.com/document/d/1rdykcfh-PZ0hFrnXYgGFDkZlMkvMCe-a/
